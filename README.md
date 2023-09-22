@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Aysym
+- 👀 I’m interested in Gaming, games, I am gamer
+- 🌱 I’m currently learning Unreal engine 5
+- 💞️ I’m looking to collaborate on Games and ad fn gmar
+- 📫 You can contact me on discord @aysym
+- also am girl 
